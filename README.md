@@ -2,9 +2,9 @@
 
 先扫码下软件：一定要提前下！！可以提前了解里面的情况和排队情况，更重要的是，**现在FP可以在手机上领取了（[FP攻略](#FP攻略)）**， 查看在线领取FP[使用说明](https://mp.weixin.qq.com/s?__biz=MzU0NzEwNTkyMQ==&mid=2247484484&idx=1&sn=a41f898a4a98d90021e2e1ec0dbd3ff9&chksm=fb5239aacc25b0bce3565d0650dba5cc0b33f4b52c9c3501a1bb06a57aa36539a8f0f7b5e63e&scene=21#wechat_redirect)
 
+![i1](https://github.com/hk029/disney/blob/master/i1.jpg?raw=true)
 
 
-![image-20180530190138188](./i1.jpg)
 
 用ＡＰＰ，可以明天看看排队情况，一般排队多的就是比较火的项目（`地平线`，漂流，速光轮，`矿车`……）其中标红的是建议玩的，下面也有说明。
 
@@ -98,9 +98,9 @@
 
 如果不用APP拿FP，那就注意：一般来说进园去探险岛拿FP，但是所有人都这么想，所以人会很多，所以当所有人都去探险的岛的时候，**可以直接走直线去梦想世界拿FP。**因为每2小时只能拿1张，所以一定要计算好时间，别浪费。尽量先拿**地平线，矿车**，这个下午可能就没了。 
 
-![image-20180530185216837](i2.jpg)
+![i1](https://github.com/hk029/disney/blob/master/i2.jpg?raw=true)
 
-## 
+
 
 # 娱乐项目
 
@@ -129,7 +129,7 @@
 
 `FP`王牌项目，必玩。通过FP玩，不要排队 
 
-![image-20180530185928925](i3.png)
+![i1](https://github.com/hk029/disney/blob/master/i3.jpg?raw=true)
 
 座位坐3星以上的就行
 
@@ -141,7 +141,9 @@
 
 建议必玩，超级精彩，没有FP，需要排队。
 
-![image-20180530184610411](i4.png)
+
+
+![i1](https://github.com/hk029/disney/blob/master/i4.jpg?raw=true)
 
 玩完根据时间顺便在旁边等演出“[风暴来临：杰克船长之惊天特技大冒险](https://www.shanghaidisneyresort.com/entertainment/theme-park/eye-of-storm-captain-jacks-spectacular/)”
 
@@ -155,19 +157,21 @@
 
 `FP `，建议必玩
 
-![image-20180530184838138](i5.png)
+![i1](https://github.com/hk029/disney/blob/master/i5.jpg?raw=true)
 
 ### 小飞侠天空奇遇
 
 `FP`，缓慢过山浏览类
 
-![image-20180530191715746](i6.png)
+![i1](https://github.com/hk029/disney/blob/master/i6.jpg?raw=true)
 
 ### 小熊维尼历险记
 
 （可选）
 
-![image-20180530191833811](i7.png)
+![i1](https://github.com/hk029/disney/blob/master/i7.jpg?raw=true)
+
+
 
 
 
