@@ -4,7 +4,7 @@
 
 
 
-![image-20180530190138188](../../../var/folders/0d/sph_n2vx1dg_4mk8q7zh7mdm0000gn/T/abnerworks.Typora/image-20180530190138188.png)
+![image-20180530190138188](i1.png)
 
 用ＡＰＰ，可以明天看看排队情况，一般排队多的就是比较火的项目（`地平线`，漂流，速光轮，`矿车`……）其中标红的是建议玩的，下面也有说明。
 
@@ -98,7 +98,7 @@
 
 如果不用APP拿FP，那就注意：一般来说进园去探险岛拿FP，但是所有人都这么想，所以人会很多，所以当所有人都去探险的岛的时候，**可以直接走直线去梦想世界拿FP。**因为每2小时只能拿1张，所以一定要计算好时间，别浪费。尽量先拿**地平线，矿车**，这个下午可能就没了。 
 
-![image-20180530185216837](../../../var/folders/0d/sph_n2vx1dg_4mk8q7zh7mdm0000gn/T/abnerworks.Typora/image-20180530185216837.png)
+![image-20180530185216837](i2.png)
 
 ## 
 
@@ -129,7 +129,7 @@
 
 `FP`王牌项目，必玩。通过FP玩，不要排队 
 
-![image-20180530185928925](../../../var/folders/0d/sph_n2vx1dg_4mk8q7zh7mdm0000gn/T/abnerworks.Typora/image-20180530185928925.png)
+![image-20180530185928925](i3.png)
 
 座位坐3星以上的就行
 
@@ -141,7 +141,7 @@
 
 建议必玩，超级精彩，没有FP，需要排队。
 
-![image-20180530184610411](../../../var/folders/0d/sph_n2vx1dg_4mk8q7zh7mdm0000gn/T/abnerworks.Typora/image-20180530184610411.png)
+![image-20180530184610411](i4.png)
 
 玩完根据时间顺便在旁边等演出“[风暴来临：杰克船长之惊天特技大冒险](https://www.shanghaidisneyresort.com/entertainment/theme-park/eye-of-storm-captain-jacks-spectacular/)”
 
@@ -155,19 +155,19 @@
 
 `FP `，建议必玩
 
-![image-20180530184838138](../../../var/folders/0d/sph_n2vx1dg_4mk8q7zh7mdm0000gn/T/abnerworks.Typora/image-20180530184838138.png)
+![image-20180530184838138](i5.png)
 
 ### 小飞侠天空奇遇
 
 `FP`，缓慢过山浏览类
 
-![image-20180530191715746](../../../var/folders/0d/sph_n2vx1dg_4mk8q7zh7mdm0000gn/T/abnerworks.Typora/image-20180530191715746.png)
+![image-20180530191715746](i6.png)
 
 ### 小熊维尼历险记
 
 （可选）
 
-![image-20180530191833811](../../../var/folders/0d/sph_n2vx1dg_4mk8q7zh7mdm0000gn/T/abnerworks.Typora/image-20180530191833811.png)
+![image-20180530191833811](i7.png)
 
 
 
